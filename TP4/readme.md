@@ -1,4 +1,6 @@
-                         
+ ![ispc](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/b7785392-5562-4b7c-9384-d1929a2c8925)                        
+![Dir-Gral-de-Educ-Tec-1](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/bd0dbc56-2bca-408d-9fa2-ac473495d725)
+
 
 
 
@@ -21,6 +23,7 @@ Edad: 44.
 
 
 
+![Tira-color png-1024x104](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/52fcb0c9-a9d4-4041-963b-9fb21c017b98)
 
 
 
