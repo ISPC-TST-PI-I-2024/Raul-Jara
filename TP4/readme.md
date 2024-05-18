@@ -1,5 +1,6 @@
- ![ispc](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/b7785392-5562-4b7c-9384-d1929a2c8925)                        
-![Dir-Gral-de-Educ-Tec-1](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/bd0dbc56-2bca-408d-9fa2-ac473495d725)
+![ispc (1)chica](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/e4ed5eb4-6941-43c4-89d3-3eedc07d9ca0)     ![Dir-Gral-de-Educ-Tec-1-chica](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/7262b871-a7a2-49a0-b8bb-9924ce6d9044)
+
+
 
 
 
@@ -23,8 +24,7 @@ Edad: 44.
 
 
 
-![Tira-color png-1024x104](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/52fcb0c9-a9d4-4041-963b-9fb21c017b98)
-
+![Tira-color png-1024x104 (1)chica](https://github.com/ISPC-TST-PI-I-2024/Raul-Jara/assets/167047352/b57c4594-25db-4097-88ba-3e58c7e841f4)
 
 
  
